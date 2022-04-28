@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @younesk31
 - 👀 I’m interested in coding
-- 📫 Reach me on @younesk31
+- 📫 you can reach me @younesk31 or discord @Slider#7998
