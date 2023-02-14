@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @younesk31
-- 👨‍🎓 Im currently working as a junior Software developer for a Company, and finishing my Computer science degree
+- 👨‍🎓 Im currently working as a Software Engineer for a Company with a degree in Computer science
 - 📫 you can reach me @younesk31 or discord @Slider#7998
