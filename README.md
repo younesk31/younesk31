@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @younesk31
+- 👋 Hi, I’m younes
 - 👨‍🎓 Software Developer with a degree in Computer science
-- 📫 you can reach me @younesk31 or discord @Slider#7998
+- 📫 you can reach me @ discord sliderslayer
