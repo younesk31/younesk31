@@ -1,3 +1,3 @@
 - 👋 Hi, I’m younes
 - 👨‍🎓 Software Developer with a degree in Computer science
-- 📫 you can reach me @ discord sliderslayer
+- 📫 you can reach me on discord @ sliderslayer
